@@ -1752,9 +1752,9 @@ Email: **contact@asadmukhtar.online**
 
 Portfolio: **https://asadmukhtar.online**
 
-GitHub: **https://github.com/yourusername**
+GitHub: **https://github.com/asadmukhtarr**
 
-LinkedIn: **https://linkedin.com/in/yourusername**
+LinkedIn: **https://www.linkedin.com/in/muhammadasad0/**
 
 ---
 
